@@ -1,1 +1,0 @@
-u1c* so v resnici nesklenjene meritve podnaloge 2.

@@ -1,1 +1,0 @@
-Podatki so hard-coded v kodi, kajti jih je zadosti malo
