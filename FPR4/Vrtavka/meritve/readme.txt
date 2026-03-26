@@ -1,0 +1,1 @@
+Meritve so na tablici in v pročilu
